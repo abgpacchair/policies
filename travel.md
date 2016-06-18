@@ -9,7 +9,7 @@
 
 4. Use of private automobile: mileage will be reimbursed at the current Federal Government approved rate (currently $0.54/km, $0.48/km over 5000km). Group will see how this works the first year, and then determine if annual limits should be imposed for individual travel (eg, U of C currently has a limit of $2400 for term of office).
 
-5. Airfare (although unlikely to be necessary, but should be included just in case) will be economy fare, with change/cancellation fees, baggage fees, and seat selection fees covered.
+5. Airfare will be economy fare, with change/cancellation fees, baggage fees, and seat selection fees covered.
 
 6. Vehicle rentals will be for compact, mid-size, or full-size vehicles as need requires. Costs will include rental fees, fuel charges, kilometer charges, and insurance coverage.
 
